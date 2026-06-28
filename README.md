@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VACB051107HGTLRRA7
+VACB051107HGTLRRA7
